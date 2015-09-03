@@ -1,0 +1,2 @@
+# Levenhuk-Atom-16x32-Binoculars
+Long distance is not an obstacle for quality observations if you’ve got Levenhuk Atom 16x32 Binoculars in your hands! 16x magnification enables you to study in detail even small objects located far away from you. Rest assured that images will be sharp and crisp as Levenhuk Atom 16x32 Binoculars are equipped with high-quality, fully coated optics made of BK-7 glass. These compact binoculars feel comfortable in your hands and easily fit in any bag. Levenhuk Atom 16x32 Binoculars are created for those who want to see farther!
